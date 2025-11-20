@@ -1,1 +1,0 @@
-# ttabel-a
